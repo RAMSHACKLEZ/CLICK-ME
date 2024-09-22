@@ -5,3 +5,4 @@
 <p>i have a huge issue with misgendering trans women i date specifically because i want them to be my yaoi semes instead of treating them like people<br><br>ray: hi little brother lets be incest<br>did that dude even have incest trauma why did he fetishize it so much<br>IDK MAN I WASNT EVEN ALLOWED TO USE HIS FIRST NAME AFTER LIKE ALMOST 2 YRS OF DATING HOW WOULD I KNOW /THAT/</p>
 
 <p><img src="https://i.redd.it/4lr7ph7d2b5d1.jpeg"><br>hi im ray this my face reveal<br>WHY DOES IT LOOK LIKE HIM<br>cause thats his face reveal duh</p>
+<p>HI IM RAY AND I TOUCHED MY EX BOYFRIEND JUST LIKE YUNG KRISTOFF cant say rapist without ray</p>
