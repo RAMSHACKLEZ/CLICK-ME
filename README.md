@@ -12,4 +12,5 @@
 OMFG WAIT ok so like he knew about my like air-touch delusion bullshit and tried to "use it to his advantage" (??) while not being psychotic / not fully understanding it himself it was so weird to experience like obviously it worked but? why would u try that if ur not delusional and dont understand the extent of it<br>LMFAOOAOAAO mentally normal person: hey can i fetishize your mental illness babygirl<br>it'd be fine if he was psychotic but it felt like when u talk about some shit that went down and someone says "aw man i could never" like ok? who asked u FREAK</p><p>remember when he made u kindate percy jackson with him<br>STOP IT RIGHT NOWWWWW<br>oh my jason~~<33 hngfdhndfngshdhghfhg *TOUCHES*<br>im gonna kill myself</p><p>the bakudeku shit<br>that was like forcefem but with mha. forcebakugo</p>
 
 <p>hey guys my name luka and I have zero clue how to use this site but I need to say some shit LOL, anyways he knew me since I was 15 and he was 17 this doesnt matter that much but i still think the age gap is hilarious considering the way he dumped everything on me instead of communicating with his gfs (oh but he has an ass excuse for like everything)</p>
-<img src="https://i.postimg.cc/Xv36LfdQ/IMG-6308.jpeg"
+<img src="![image](https://github.com/user-attachments/assets/d7b2cf16-c693-48f9-8773-aeec371ca018)
+"
