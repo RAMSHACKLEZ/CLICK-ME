@@ -17,4 +17,4 @@ OMFG WAIT ok so like he knew about my like air-touch delusion bullshit and tried
 
 <p>EWWW HE HCANGED HIS NAME TO MY DEADNAME LOL KYS<br><img src="https://i.imgur.com/4NkzY6I.png"></p>
 
-<p>hi luk again i got permission to add a few more things from the victims, lito only talked to his other ex for sex ever + didnt communicate anywhere else than a gc with ex in it. while taking advantage of said exes trauma numerous times<p>
+<p>hi luk again i got permission to add a few more things from the victims, lito only talked to his other ex for sex ever + didnt communicate anywhere else than a gc with ex in it. while taking advantage of said exes trauma numerous times (he really likes taking advantage of people i noticed)<p>
